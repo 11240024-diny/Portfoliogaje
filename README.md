@@ -1,0 +1,2 @@
+# Portfoliogaje
+Teing da gaje
